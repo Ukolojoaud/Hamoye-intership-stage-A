@@ -1,2 +1,2 @@
-# Hamoye intership stage A
+# Hamoye internship stage A
  
